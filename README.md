@@ -14,7 +14,7 @@ I can tell you it's been hard to program this assignment after the semester sinc
 
 //Final Plea
 
-Last question, if it gets to the point where I'll fail the class due to a low grade because I didn't have time to finish this assignment due to prior obligations, will you give me an incomplete for the course so that I can finish this assignment and move on with my life? I know that sounds like a lot, but I honestly would hate to fail the class over the single assignment that I've been looking forward to all semester just to have it released at the worst time and not be able to complete the class because of that. 
+Last question, if it gets to the point where I'll fail the class due to a low grade because I didn't have time to finish this assignment due to prior obligations, will you give me an incomplete for the course so that I can finish this assignment and move on with my life? I know that sounds like a lot, but I honestly would hate to fail the class over the single assignment that I've been looking forward to all semester just to have it released at the worst possible time and not be able to complete the class due to that. 
 
 Thanks Ivo! 
 See ya around!
